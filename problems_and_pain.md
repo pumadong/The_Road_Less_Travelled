@@ -25,19 +25,19 @@ Therefore let us inculcate(教育) in ourselves and in our children the means of
 
 What are these tools, these techniques of suffering, these means of experiencing the pain of problems constructively that I call discipline? There are four: delaying of gratification, acceptance of responsibility, dedication to truth, and balancing. As will be evident, these are not complex tools whose application demands extensive(大量地) training. To the contrary, they are simple tools, and almost all children are adept(熟练地) in their use by the age of ten. Yet presidents and kings will often forget to use them, to their own downfall(帝国地毁灭). The problem lies not in the complexity of these tools but in the will to use them. For they are tools with which pain is confronted rather than avoided, and if one seeks to avoid legitimate suffering, then one will avoid the use of these tools. Therefore, after analyzing each of these tools, we shall in the next section examine the will to use them, which  is love.
 # My Understanding
-> 一旦接受了“生活本来就有很多痛苦”这种观点，面对痛苦就不是个事了。
-> 解决生活的问题需要自律，不同程度的自律解决不同程度的问题。
-痛苦的原因是不愿意面对问题。而面对和解决问题才是人生的意义。
-Problem区分成功和失败，处于cutting edge，唤起勇气和智慧，或者说Create。 通过解决问题，We learn。
-Wise people，不害怕问题，欢迎问题和pain of problems。
-Most of us，逃避问题。 这是人类精神问题基本的primary basis。
-Neurosis is always a substitute for legitimate suffering.
-但是，逃避问题变成了最大的问题。避免合理的痛苦，也就停止了成长，精神开始枯萎。
-我们要教育自己和孩子，痛苦和内在价值，面对问题和经受阵痛的必要性。
-解决问题的工具是自律。
-自律是什么？
-延迟满足、承担责任、忠于事实、平衡。
-这些是很简单的工具，10岁的孩子就可以用。
-所以问题在于是否有意愿去用这些工具。
-因为这些工具是用来直面痛苦，而不是逃避问题。如果一个人寻求避免合理的痛苦，他就会避免使用这些工具。
-所以，分析完这些工具之后，我们在Love这一章节，会检查用这些工具的意愿，那就是爱!!!
+- 一旦接受了“生活本来就有很多痛苦”这种观点，面对痛苦就不是个事了。
+- 解决生活的问题需要自律，不同程度的自律解决不同程度的问题。
+- 痛苦的原因是不愿意面对问题。而面对和解决问题才是人生的意义。
+- Problem区分成功和失败，处于cutting edge，唤起勇气和智慧，或者说Create。 通过解决问题，We learn。
+- Wise people，不害怕问题，欢迎问题和pain of problems。
+- Most of us，逃避问题。 这是人类精神问题基本的primary basis。
+- Neurosis is always a substitute for legitimate suffering.
+- 但是，逃避问题变成了最大的问题。避免合理的痛苦，也就停止了成长，精神开始枯萎。
+- 我们要教育自己和孩子，痛苦和内在价值，面对问题和经受阵痛的必要性。
+- 解决问题的工具是自律。
+- 自律是什么？
+- 延迟满足、承担责任、忠于事实、平衡。
+- 这些是很简单的工具，10岁的孩子就可以用。
+- 所以问题在于是否有意愿去用这些工具。
+- 因为这些工具是用来直面痛苦，而不是逃避问题。如果一个人寻求避免合理的痛苦，他就会避免使用这些工具。
+- 所以，分析完这些工具之后，我们在Love这一章节，会检查用这些工具的意愿，那就是爱!!!
