@@ -4,9 +4,7 @@ M.SCOTT PECK, M.D.
 其他同学的读后感：[https://www.jianshu.com/p/9e9a92c8c0b0](https://www.jianshu.com/p/9e9a92c8c0b0)
 
 # Catalog
-***
-
-* [Introduction](introduction.md)
+* [Introduction(前言)](introduction.md)
 * [Discipline(自律)](Discipline.md)
     * [Problems and Pain(问题和痛苦)](ProblemsandPain.md)
     * [Delaying Gratification(推迟满足感)](DelayingGratification.md)
