@@ -5,8 +5,8 @@ M.SCOTT PECK, M.D.
 
 # Catalog
 * [Introduction(前言)](introduction.md)
-* [Discipline(自律)](Discipline.md)
-    * [Problems and Pain(问题和痛苦)](ProblemsandPain.md)
+* [Discipline(自律)](discipline.md)
+    * [Problems and Pain(问题和痛苦)](problems_and_pain.md)
     * [Delaying Gratification(推迟满足感)](DelayingGratification.md)
     * [The Sins of the Father(子不教，谁之过)](TheSinsoftheFather.md)
     * [Problem-Solving and Time(解决问题的时机)](Problem-SolvingandTime.md)
