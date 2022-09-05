@@ -4,9 +4,9 @@ Life is difficult.
 This is a great truth, one of the greatest truths.
 **The first of the "Four Noble Truths" which Buddha taught was "Life is suffering."**
 
-It is a great truth because once we truly see this truth, we transcend it. Once we truly know that life is difficult-once we truly understand and accept itthen life is no longer difficult. Because once it is accepted, the fact that life is difficult no longer matters.
+It is a great truth because once we truly see this truth, we transcend it. Once we truly know that life is difficult-once we truly understand and accept it, then life is no longer difficult. Because once it is accepted, the fact that life is difficult no longer matters.
 
-Most do not fully see this truth that life is difficult. Instead they moan more or less incessantly(不断地), noisily(吵闹地) or subtly(隐隐约约地), about enormity of their problems, their burdens, and their difficulties as if life were generally easy, as if life *should* be easy. They voice their belief(看法), noisily or subtly, that their difficulties represent a unique kind of affliction(折磨) that should not be and that has somehow(不知为什么地) been especially visited upon them, or else upon their families, their trible, their class, their nation, their race or even their species, and not upon others. I know about this moaning because I have done my share.
+Most do not fully see this truth that life is difficult. Instead they moan more or less incessantly(不断地), noisily(吵闹地) or subtly(隐隐约约地), about enormity of their problems, their burdens, and their difficulties as if life were generally easy, as if life *should* be easy. They voice their belief(看法), noisily or subtly, that their difficulties represent a unique kind of affliction(折磨) that should not be and that has somehow(不知为什么地) been especially visited upon them, or else upon their families, their tribe, their class, their nation, their race or even their species, and not upon others. I know about this moaning because I have done my share.
 
 Life is a series of problems. Do we want to moan about them or solve them? Do we want to teach our children to solve them?
 Discipline is the basic set of tools we require to solve life's problems. Without descipline we can solve nothing. With only some descipline we can solve only some problems. With total discipline we can solve all problems.
