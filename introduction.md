@@ -3,8 +3,7 @@ M.SCOTT PECK, M.D.
 
 其他同学的读后感：[https://www.jianshu.com/p/9e9a92c8c0b0](https://www.jianshu.com/p/9e9a92c8c0b0)
 
-[Back](README.md)
-# Introduction
+# Introduction(前言)
 The ideas herein(在此,adverb) presented stem(起源于,verb), for the most part, from my day-to-day clinical work with my patients as they struggled to avoid or to gain ever greater levels of maturity(成熟). Consequently, this book contains portions of many actual case histories. Confidentiality(保密性) is essential to psychiatirc practice, and all case descriptions, therefore, have been altered in name and in other particulars so as to preserve the anonymity(匿名) of my patients without distorting(歪曲) the essential reality of our experience with each other.
 
 There may, however, be some distortion(变形) by virtue of(由于) the brevity of the case presentations. Psychotherapy is seldom a brief process, but since I have, of necessity, focused on the highlights of a case, the reader may be left with the impression that the process is one of drama and clarity. The drama is real and clarity may eventually be achieved, but it should be remembered that in the interest of readability, accounts(描述) of the lengthy periods of confusion and frustration inherent(固有的) in most therapy have been omitted from these case descriptions.
