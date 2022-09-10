@@ -21,8 +21,8 @@ That does not mean they are not painful. Frequently our choices lie between the 
 One of the roots of this "sense of impotence(无力感)" in the majority of patients is some desire to partially or totally escape the pain of freedom, and, therefore, some failure, partial or total, to accept responsibility for their problems and their lives. They feel impotent(无力的) because they have, in fact, given their power away. Sooner or later(迟早), if they are to be healed, they must learn that the entirety(全部) of one's adult life is a series of personal choices, decisions. If they can accept this totally, then they become free people. To the extent(在某种程度上) that they do not accept this they will forever feel themselves victims.
 # My Understanding
 - 先介绍了作者Scott Peck本人在30岁时，实习期间，因为比同事投入更多时间晚下班，而有抱怨，寻求诊所总监帮助（停止安排轮值病人一段时间）的案例。
-- 本质上是把自己地选择，让别人来承担责任。是想避免自己选择地后果地pain，寻求别人帮助，也是放弃了自己地权力。
+- 本质上是把自己的选择，让别人来承担责任，是想避免自己选择的后果地pain。寻求别人帮助，也是放弃了自己的权力。
 - 另一个泛泛之交总是抱怨生活，不去行动地案例。
 - 选择，不是没有pain。经常是两害相权取其轻。
-- 无力感地根源，是逃避自由选择的pain。感到无力，实际是放弃了自己的自由选择的而权力。
+- 无力感地根源，是逃避自由选择的pain。感到无力，实际是放弃了自己的自由选择的权力。
 - 必须学习到，成年人生活的全部，就是一系列个人选择，决定。就不会觉得自己是受害者。为自己的选择，承担后果。
