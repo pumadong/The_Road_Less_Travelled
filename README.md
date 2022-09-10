@@ -1,4 +1,4 @@
-A New Psychology of Love, Traditional Values and Spiritual Growth.
+A New Psychology of Love, Traditional Values and Spiritual Growth.  
 M.SCOTT PECK, M.D.
 
 其他同学的读后感：[https://www.jianshu.com/p/9e9a92c8c0b0](https://www.jianshu.com/p/9e9a92c8c0b0)
