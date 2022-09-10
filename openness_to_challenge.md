@@ -43,4 +43,7 @@ We lie, of course, not only to others but also to ourselves. The challenges to o
 完全忠于事实的生活意味着什么的？
 * 持续的、严格的自省。
 * 愿意亲自接受挑战。
-* 完全的诚实。
+* 完全的诚实。  
+
+真正的心理学是个人成长的合理的快捷方式。
+
