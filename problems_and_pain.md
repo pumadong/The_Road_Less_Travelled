@@ -1,5 +1,4 @@
-[Back](README.md)
-# Original Content
+# Problems and Pain(问题和痛苦)
 Life is difficult.
 This is a great truth, one of the greatest truths.
 **The first of the "Four Noble Truths" which Buddha taught was "Life is suffering."**
