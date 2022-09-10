@@ -1,4 +1,3 @@
-[Back](README.md)
 
 # 自律
 
