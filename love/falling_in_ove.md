@@ -35,10 +35,10 @@ Falling in love has little to do with purposively(有决心地) nurturing one's 
 If falling in love is not love, then what is it other than a temporary and partial collapse of ego boundaries? I do not know. But the sexual specificity(特征) of the phenomenon leads me to suspect(猜想) that it is a genetically(基因决定地) determined instinctual component of mating(交配) behavior. In other words, the temporary collapse of ego boundaries that constitutes(构成) falling in love is a stereotypic(刻板的) response of human beings to a configuration of internal sexual drives and external sexual stimuli(刺激), which serves to increase the probability of sexual pairing(配对) and bonding(建立关系) so as to enhance the survival of the species. Or to put it in another, rather crass(粗鲁地) way, falling in love is a trick that our genes(基因) pull on our otherwise perceptive mind to hoodwink(欺骗) or trap(诱捕) us into marriage. Frequently the trick goes awry(脱离路线地) one way or another, as when the sexual drives and stimuli are homosexual or when other forces-parental interference, mental illness, conflicting responsibilities or mature self-discipline supervene(发生) to prevent the bonding. On the other hand, without this trick, this illusory(虚幻地) and inevitably temporary(it would not be practical were it not temporary) regression(倒退) to infantile(幼儿期地) merging and omnipotence, many of us who are happily or unhappily married today would have retreated(撤退) in whole-hearted terror(恐惧) from the realism(现实性) of the marriage vows(婚誓).
 # My Understanding
 * 陷入情网的体验，是特别和性相关的。
-* 要查明陷入情网的本质，必须明白自我边界，用婴儿成长的案例，来定义自我边界，即我们和外界区别，我们的限制的知识。
-* 因为界限后面的孤独，大多数人渴望逃离。陷入情网的体验，允许我们临时逃离。这实际是一种倒退，就像婴儿时期认为和母亲是一体的。我们因此重新体验了万能的感觉，好像所有的事情都是可能的。
+* 要查明陷入情网的本质，必须明白自我边界，用婴儿成长的案例，来定义自我边界，即我们和外界区别，我们的限制。
+* 因为自我边界后面的孤独，大多数人渴望逃离。陷入情网的体验，允许我们临时逃离。这实际是一种倒退，就像婴儿时期认为和母亲是一体的。我们因此重新体验了万能的感觉，好像所有的事情都是可能的。
 * 总有一天，个体重新主张，此时要么中断关系，要么开始建设真正的爱。
 * 我们可以选择如何面对陷入情网。
-* 陷入情网的时候，是没有精神成长的，是不需要努力的。成长和突破边界需要努力。我们甚至感到我们不需要成长，感到自己和爱人都是完美的。
-* 如果陷入情网不是爱，除了自我边界的临时和部分塌陷，他是什么呢？
-* 基因决定的，促进物种繁衍的行为。
+* 陷入情网的时候，是没有精神成长的，是不需要努力的(成长和突破边界需要努力)。陷入情网的时候，我们甚至感到我们不需要成长，感到自己和爱人都是完美的。
+* 如果陷入情网不是爱，除了自我边界的临时和部分塌陷，它是什么呢？
+* 它是基因决定的，促进物种繁衍的行为。
