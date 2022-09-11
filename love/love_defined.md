@@ -29,5 +29,6 @@ As I indicated, patients who come to psychotherapy are invariably found to be mo
 * 第三，爱的定义包括爱自己和爱别人。不爱自己不能爱别人。
 * 第四，爱是需要努力的。
 * 第五，爱是意愿，不是渴望  
+
 了解爱的准确定义，能减少不必要的痛苦。  
 后续章节，先从探索什么不是爱开始。
