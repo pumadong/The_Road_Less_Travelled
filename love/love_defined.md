@@ -28,9 +28,9 @@ As I indicated, patients who come to psychotherapy are invariably found to be mo
 爱的定义：为了培养自己或者他人的精神成长，扩展自己的意愿。  
 * 第一，这是个目的论的定义。是通过大量的实践得出的。爱的行为，和不是爱，最主要的区别是，有意识还是无意识。
 * 第二，爱是个循环的过程。
-* 第三，爱的定义包括爱自己和爱别人。不爱自己不能爱别人。
+* 第三，爱的定义包括爱自己和爱别人。只有有能力爱自己，才能有能力爱别人。就像只有我们本身是自律的，我们才能教孩子自律。
 * 第四，爱是需要努力的。
-* 第五，爱是意愿，不是渴望  
+* 第五，爱是意愿will(I will go swimming tonight)，不是渴望desire(I would like to go swimming tonight)。  
 
 了解爱的准确定义，能减少不必要的痛苦。  
 后续章节，先从探索什么不是爱开始。
