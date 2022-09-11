@@ -24,9 +24,9 @@ Finally, by use of the word "will" I have attempted to transcend the distinction
 
 As I indicated, patients who come to psychotherapy are invariably found to be more or less confused about the nature of love. This is because in the face of the mystery of love misconceptions about it abound(大量存在). While this book will not remove from love its mystery, I hope it will clarify(澄清) matters sufficiently(充分地) to help do away with(废除) these misconceptions(错误地想法), which cause suffering not only to patients but to all people as they attempt to make sense(讲得通) out of their own experiences. Some of this suffering seems to me unnecessary, since these popular misconceptions could be made less popular through the teaching of a more precise(准确地) definition of love. I have therefore chosen to begin exploring the nature of love by examining what love is not.
 # My Understanding
-自律是人类精神进化地方式。本节会检查自律后面的动机，就是爱。  
+自律是人类精神进化地方式。本节会检查自律后面的动机，那就是爱。  
 爱的定义：为了培养自己或者他人的精神成长，扩展自己的意愿。  
-* 第一，这是个目的论的定义。是通过大量的实践得出的。爱的行为和爱最主要的区别是，其是有意识还是无意识。
+* 第一，这是个目的论的定义。是通过大量的实践得出的。爱的行为，和不是爱，最主要的区别是，有意识还是无意识。
 * 第二，爱是个循环的过程。
 * 第三，爱的定义包括爱自己和爱别人。不爱自己不能爱别人。
 * 第四，爱是需要努力的。
