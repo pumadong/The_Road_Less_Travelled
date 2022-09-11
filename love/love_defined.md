@@ -32,5 +32,5 @@ As I indicated, patients who come to psychotherapy are invariably found to be mo
 * 第四，爱是需要努力的。
 * 第五，爱是意愿will(I will go swimming tonight)，不是渴望desire(I would like to go swimming tonight)。  
 
-了解爱的准确定义，能减少不必要的痛苦。  
-后续章节，先从探索什么不是爱开始。
+通过探索爱的准确定义，并进行充分的澄清，可以减轻错误概念的流行。  
+探索爱的本质，我们先从探索什么不是爱开始。
