@@ -10,22 +10,22 @@ A leading reason for people to think about seeking psychiatric attention is depr
 
 Recently we have been hearing of the "mid-life crisis." Actually, this is but one of many "crises," or critical states of development, in life, as Erik Erikson taught us thirty years ago. (Erikson delineated(描绘) eight crises; perhaps there are more.) What makes crises of these transition(过渡) periods in the life cycle(生命周期)-that is(也就是说), problematic(有问题的) and painful-is that in successfully working our way through them we must give up cherished notions(观念) and old ways of doing and looking at things. Many people are either unwilling or unable to suffer the pain of giving up the outgrown(过大的) which needs to be forsaken(遗弃). Consequently they cling, often forever, to their old patterns of thinking and behaving, thus failing to negotiate(成功越过) any crisis, to truly grow up, and to experience the joyful sense of rebirth(重生) that accompanies(伴随) the successful transition(过渡) into greater maturity. Although an entire book could be written about each one, let me simply list, roughly(粗略地) in order of their occurrence(发生), some of the major conditions(条件), desires(欲望) and attitudes(态度) that must be given up in the course of a wholly successful evolving(进化的) lifetime(一生):  
 
-The state of infancy, in which no external demands need be responded to  
-The fantasy of omnipotence(全能)  
-The desire for total(including sexual) possession of one's parent(s)  
-The dependency of childhood  
-Distorted(扭曲的) images of one's parents  
-The omnipotentiality of adolescence(青春期)  
-The "freedom" of uncommitment  
-The agility(敏捷) of youth  
-The sexual attractiveness and/or potency(影响力) of youth  
-The fantasy of immortality(不朽)  
-Authority over one's children  
-Various forms of temporal(一时的) power  
-The independence of physical health  
-And, ultimately, the self and life itself.  
+* The state of infancy, in which no external demands need be responded to  
+* The fantasy of omnipotence(全能)  
+* The desire for total(including sexual) possession of one's parent(s)  
+* The dependency of childhood  
+* Distorted(扭曲的) images of one's parents  
+* The omnipotentiality of adolescence(青春期)  
+* The "freedom" of uncommitment  
+* The agility(敏捷) of youth  
+* The sexual attractiveness and/or potency(影响力) of youth  
+* The fantasy of immortality(不朽)  
+* Authority over one's children  
+* Various forms of temporal(一时的) power  
+* The independence of physical health  
+* And, ultimately, the self and life itself.  
 # My Understanding
 * 因为放弃产生的沮丧是正常的，只有被拖长了，不能因为放弃的完成而终止的时候，才是不正常和不健康的。
-* 同年时期儿童还没有准备好放弃，没有强大到接受失去，父母无视孩子的需要，Take away "things"，对儿童伤害是最大的。
+* 同年时期儿童还没有准备好放弃，没有强大到接受失去，父母无视孩子的需要，Take away "things"，对儿童伤害是最大的。也就是作者说的“giving-up neurosis”。
 * 中年危机不过是各种危机的一种而已，只是发展的重要关口之一。通过放弃我们珍视的观念，放弃我们做事和看待事情的老方式，能透过这些危机。
 * 作者列出了关于危机的一个长长的列表。
