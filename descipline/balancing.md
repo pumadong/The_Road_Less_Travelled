@@ -25,7 +25,7 @@ Immediately I felt as if I were nine years old again, lying bleeding in the bush
 
 My depression is over now. I have given up part of my desire to win at games. That part of me is gone now. It died. It had to die. I killed it. I killed it with my desire to win at parenting. When I was a child my desire to win at games served me well. As a parent, I recognized that it got in my way. So it had to go. The times have changed. To move with them I had to give it up. I do not miss it. I thought I would, but I don't.
 # My Understanding
-* 要诚实，还要在合适的时候隐藏真相；要承担责任，还要拒绝实际不是我们的责任；要延迟满足，还要在快乐的生活(只要并没有破坏性)。
+* 要诚实，还要在合适的时候隐藏真相；要承担责任，还要拒绝实际不是我们的责任；要延迟满足，还要快乐的生活(只要并没有破坏性)。
 * 以上皆是平衡。平衡是自律的第四种工具，是给我们灵活性的自律。
 * 关于Anger的案例。关于精神分裂的女性的案例。
 * **Balancing的自律的本质是放弃。**
