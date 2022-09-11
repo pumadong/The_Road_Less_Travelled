@@ -1,5 +1,5 @@
 # The Healthiness of Depresssion(抑郁的价值)
-The foregoing(前述的) is a minor example of what those people with the courage to call themseles patients must go through in more major ways, and often many times, in the process of psychotherapy. The period of intensive(集中地) psychotherapy is a period of intensive growth, during which the patient may undergo(经受) more changes than some people experience in a lifetime. For this growth spurt(喷射) to occur(产生), a proportionate(成比例地) amount of "the old self" must be given up. It is an inevitable pan of successful psychotherapy. Infact, this process of giving up usually begins before the patient has his first appointment with the psychotherapist. Frequently, for instance, the act of deciding to seek psychiatric attention in itself represents a giving up of the self-image "I'm OK." This giving up may be particularly difficult for males in our culture for whom "I'm not OK and I need assistance to understand why I'm not OK and how to become OK" is frequently and sadly equated with "I'm weak, unmasculine and inadequate." Actually, the giving-up process often begins even before the patient has arrived at the decision to seek psychiatric attention. I mentioned that during the process of giving up my desire to always win I was depressed(沮丧地). This is because the feeling associated with giving up something loved-or at least something that is a part of ourselves and familiar-is depression(沮丧). Since mentally healthy human beings must grow, and since giving up or loss of the old self is an integral(必要地) part of the process of mental and spiritual growth, depression is a normal and basically healthy phenomenon(现象). It becomes abnormal or unhealthy only when something interferes(妨碍) with the giving-up process, with the result that the depression is prolonged(拖长) and cannot be resolved by completion of the process.
+The foregoing(前述的) is a minor example of what those people with the courage to call themselves patients must go through in more major ways, and often many times, in the process of psychotherapy. The period of intensive(集中地) psychotherapy is a period of intensive growth, during which the patient may undergo(经受) more changes than some people experience in a lifetime. For this growth spurt(喷射) to occur(产生), a proportionate(成比例地) amount of "the old self" must be given up. It is an inevitable pan of successful psychotherapy. Infact, this process of giving up usually begins before the patient has his first appointment with the psychotherapist. Frequently, for instance, the act of deciding to seek psychiatric attention in itself represents a giving up of the self-image "I'm OK." This giving up may be particularly difficult for males in our culture for whom "I'm not OK and I need assistance to understand why I'm not OK and how to become OK" is frequently and sadly equated with "I'm weak, unmasculine and inadequate." Actually, the giving-up process often begins even before the patient has arrived at the decision to seek psychiatric attention. I mentioned that during the process of giving up my desire to always win I was depressed(沮丧地). This is because the feeling associated with giving up something loved-or at least something that is a part of ourselves and familiar-is depression(沮丧). Since mentally healthy human beings must grow, and since giving up or loss of the old self is an integral(必要地) part of the process of mental and spiritual growth, depression is a normal and basically healthy phenomenon(现象). It becomes abnormal or unhealthy only when something interferes(妨碍) with the giving-up process, with the result that the depression is prolonged(拖长) and cannot be resolved by completion of the process.
 
 
 There are many factors that can interfere(妨碍) with the giving-up process and, therefore, prolong(拖长) a normal, healthy depression into a chronic pathologic(病理的) depression. Of all the possible factors, one of the most common and potent(强大的) is a pattern of experiences in childhood wherein(其中) parents or fate, unresponsive(无反应的) to the needs of the child, took away "things" from the child before he or she was psychologically ready to give them up or strong enough to truly accept their loss. Such a pattern of experience in childhood sensitizes(使敏感) the child to the experience of loss and creates a tendency far stronger than that found in more fortunate individuals to cling to "things" and seek to avoid the pain of loss or giving up. For this reason, although all pathologic(病理的) depressions(沮丧) involve some blockage(阻塞) in the giving-up process, I believe there is a type of chronic neurotic depression that has its central root a traumatic(创伤的) injury(损害) to the individual's basic capacity to give up anything, and to this subtype of depression I would apply the name "giving-up neurosis."
@@ -10,22 +10,22 @@ A leading reason for people to think about seeking psychiatric attention is depr
 
 Recently we have been hearing of the "mid-life crisis." Actually, this is but one of many "crises," or critical states of development, in life, as Erik Erikson taught us thirty years ago. (Erikson delineated(描绘) eight crises; perhaps there are more.) What makes crises of these transition(过渡) periods in the life cycle(生命周期)-that is(也就是说), problematic(有问题的) and painful-is that in successfully working our way through them we must give up cherished notions(观念) and old ways of doing and looking at things. Many people are either unwilling or unable to suffer the pain of giving up the outgrown(过大的) which needs to be forsaken(遗弃). Consequently they cling, often forever, to their old patterns of thinking and behaving, thus failing to negotiate(成功越过) any crisis, to truly grow up, and to experience the joyful sense of rebirth(重生) that accompanies(伴随) the successful transition(过渡) into greater maturity. Although an entire book could be written about each one, let me simply list, roughly(粗略地) in order of their occurrence(发生), some of the major conditions(条件), desires(欲望) and attitudes(态度) that must be given up in the course of a wholly successful evolving(进化的) lifetime(一生):  
 
-The state of infancy, in which no external demands need be responded to  
-The fantasy of omnipotence(全能)  
-The desire for total(including sexual) possession of one's parent(s)  
-The dependency of childhood  
-Distorted(扭曲的) images of one's parents  
-The omnipotentiality of adolescence(青春期)  
-The "freedom" of uncommitment  
-The agility(敏捷) of youth  
-The sexual attractiveness and/or potency(影响力) of youth  
-The fantasy of immortality(不朽)  
-Authority over one's children  
-Various forms of temporal(一时的) power  
-The independence of physical health  
-And, ultimately, the self and life itself.  
+* The state of infancy, in which no external demands need be responded to  
+* The fantasy of omnipotence(全能)  
+* The desire for total(including sexual) possession of one's parent(s)  
+* The dependency of childhood  
+* Distorted(扭曲的) images of one's parents  
+* The omnipotentiality of adolescence(青春期)  
+* The "freedom" of uncommitment  
+* The agility(敏捷) of youth  
+* The sexual attractiveness and/or potency(影响力) of youth  
+* The fantasy of immortality(不朽)  
+* Authority over one's children  
+* Various forms of temporal(一时的) power  
+* The independence of physical health  
+* And, ultimately, the self and life itself.  
 # My Understanding
 * 因为放弃产生的沮丧是正常的，只有被拖长了，不能因为放弃的完成而终止的时候，才是不正常和不健康的。
-* 同年时期儿童还没有准备好放弃，没有强大到接受失去，父母无视孩子的需要，Take away "things"，对儿童伤害是最大的。
-* 中年危机不过是各种危机的一种而已，只是发展的重要关口之一。通过放弃我们珍视的观念，放弃我们做事和看待事情的老方式，能透过这些危机。
-* 作者列出了关于危机的一个长长的列表。
+* 同年时期儿童还没有准备好放弃，没有强大到接受失去，父母无视孩子的需要，Take away "things"，对儿童伤害是最大的。也就是作者说的“giving-up neurosis”。
+* 中年危机不过是各种危机的一种而已，只是发展的重要关口之一。通过放弃我们珍视的观念，放弃我们做事和看待事情的老方式，能帮助我们成功越过这些危机。
+* 作者根据时间顺序，列出了在一生的各个阶段，会出现的14个危机。
