@@ -23,8 +23,8 @@ Most mystics understand the truth that was elaborated at the end of the discussi
 In summary, then, the temporary loss of ego boundaries involved in falling in love and in sexual intercourse not only(不仅) leads us to make commitments(承诺) to other people from which real love may begin but also(而且) gives us a foretaste(预示) of(and therefore an incentive(激励) for) the more lasting mystical ecstasy that can be ours after a lifetime of love. As such, therefore, while falling in love is not itself love, it is a part of the great and mysterious(不可思议的) scheme of love.
 # My Understanding
 * 真正的爱也是和自我边界有关的，是自我边界的放大和扩展。
-* 真正的爱可以体会到和自我边界萎缩和陷入情网一样的狂喜。和陷入情网不同的是，不是和一个对象临时的、非理性的狂喜，而是和整个世界理性的，持久的狂喜。
-* 性和爱经常同时发生，其实是分开的。性的狂喜，其实也是自我边界萎缩，只是一会儿。
-* 印度和佛教坚持个体和世界的统一性，认为婴儿能感知真实，成人不能。所以有人想通过倒退、自我边界萎缩，来到达圣域，这是不行的，能到达的是精神分裂。因为只有先获取，才能失去。成年的自我边界时个必须的过程。
-* 本书的一个论点是只有通过真正的爱的坚持不懈的联系，才能获取持久启迪的涅槃或者精神上的成长。
-* 陷入情网本身不是爱，它是整个伟大而又不可思议的爱的框架的一部分。
+* 真正的爱可以体会到和自我边界萎缩、陷入情网一样的狂喜。和陷入情网不同的是，不是和一个对象临时的、非理性的狂喜，而是和整个世界理性的，持久的狂喜。
+* 性和爱经常同时发生，其实是分开的。性的狂喜，是自我边界萎缩，可以没有一个爱的对象。
+* 印度和佛教坚持个体和世界的统一性，认为婴儿能感知真实，成人不能。所以有人想通过倒退、自我边界萎缩，来到达圣域，这是毫无根据的，能到达的是精神分裂。因为只有先获取，才能失去。成年的自我边界的强化，是必须的过程。
+* 本书的一个论点是，真正的爱的坚持不懈的练习，是获取持久启迪和精神成长的涅槃的唯一途径。
+* 陷入情网本身不是爱，它是伟大而又不可思议的爱的框架的一部分。
