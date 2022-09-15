@@ -29,6 +29,18 @@ Probably the most saddening example of this phenomenon is the very large number 
 What this suggests(这表明) is that the "love" of infants and pets and even dependently obedient(服从的) spouses is an instinctual pattern of behavior to which it is quite appropriate to apply the term "maternal(慈母般的) instinct" or, more generally, "parental instinct." We can liken(把……比作) this to the instinctual behavior of "falling in love": it is not a genuine form of love in that it is relatively effortless, and it is not totally an act of will or choice; it encourages the survival of the species but is not directed toward its improvement or spiritual growth; it is close to love in that it is a reaching out for others and serves to initiate interpersonal bonds from which real love might begin but a good deal more is required to develop a healthy, creative marriage, raise a healthy, spiritually growing child or contribute to the evolution of humanity.
 
 
-The point is that nurturing can be and usually should be much more than simple feeding, and that nurturing spiritual growth is an infinitely(无限地) more complicated process than can be directed by any instinct. The mother mentioned at the beginning of this section who would not let her son take the bus to school is a case in point(相关的). By driving him to and from school she was nurturing him in a sense, but it was nurturing he did not need and that clearly retarded(阻碍) rather than furthered(促进) his spiritual growth. Other examples abound: mothers who push food on their already overweight children; fathers who buy their sons whole roomfuls of toys and their daughters whole closetfuls of clothes; parents who set no limits and deny no desires. Love is not simply giving; it is *judicious*(明智的) giving and judicious withholding(保留) as well. It is judicious praising and judicious criticizing. It is judicious arguing, struggling, confronting, urging, pushing and pulling in addition to comforting(舒适；). It is leadership. The word "judicious" means requiring judgment, and judgment requires more than instinct; it requires thoughtful and often painful decision making.
+The point is that nurturing can be and usually should be much more than simple feeding, and that nurturing spiritual growth is an infinitely(无限地) more complicated process than can be directed by any instinct. The mother mentioned at the beginning of this section who would not let her son take the bus to school is a case in point(相关的). By driving him to and from school she was nurturing him in a sense, but it was nurturing he did not need and that clearly retarded(阻碍) rather than furthered(促进) his spiritual growth. Other examples abound(大量存在): mothers who push food on their already overweight children; fathers who buy their sons whole roomfuls of toys and their daughters whole closetfuls of clothes; parents who set no limits and deny no desires. Love is not simply giving; it is *judicious*(明智的) giving and judicious withholding(保留) as well. It is judicious praising and judicious criticizing. It is judicious arguing, struggling, confronting, urging(激励), pushing and pulling in addition to comforting(舒适). It is leadership. The word "judicious" means requiring judgment, and judgment requires more than instinct; it requires thoughtful and often painful decision making.
 
 # My Understanding
+
+* 和依赖不是爱一样，无关精神成长的cathexis(全神贯注)也绝不是爱。
+* 我们需要滋养精神，同时也需要休息和娱乐。爱好可以是提高自己的方式，也可能变成自我发展的替代品，浅显的，停止进步。
+* 分析我们和宠物的关系，和宠物沟通是有限的，宠物必须和我们共悲喜，我们促进宠物依赖我们而不是独立。
+* 分析战争新娘的案例，和不会说英语的战争新娘的关系，有点类似和宠物的关系，当新娘开始说英语，关系出现危机。
+* 分析大量女性爱婴儿时期的孩子，当孩子开始有自己的思想，慢慢就不愿爱的案例。
+* 以上，是叫做“parental instinct”的一种本能的模式。和“falling in love”一样，无关努力，无关成长。
+* 爱不是简单的给予。
+  * 爱是明智的给予和保留。
+  * 爱是明智的赞扬和批评。
+  * 爱是明智的辩论，挣扎，面对，激励，pushing and pulling in addition to comforting。
+  * 爱需要判断力，不是仅仅本能。爱需要思考和经常是痛苦的抉择。
