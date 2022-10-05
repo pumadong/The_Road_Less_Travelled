@@ -45,7 +45,7 @@ M.SCOTT PECK, M.D.
     * [The Religion of Science(科学与信仰)](growth/the_religion_of_science.md)
     * [The Case of Kathy(凯茜的案例)](growth/the_case_of_kathy.md)
     * [The Case of Marcia(马西娅的案例)](growth/the_case_of_marcia.md)
-    * [The Case of Theodore(特德的案例)](growth/the_case_of_the_odore.md)
+    * [The Case of Theodore(特德的案例)](growth/the_case_of_theodore.md)
     * [The Baby and the Bathwater(婴儿与洗澡水)](growth/the_baby_and_the_bath_water.md)
     * [Scientific Tunnel Vision(科学隧道观)](growth/scientific_tunnel_vision.md)
 * [Grace(恩典)](grace.md)
